@@ -10,3 +10,4 @@ primaria llegue al Millet i hay he estado hasta ahora.
 
 
 -**videojuegos**
+los videojuegos son probablemente la cosa a la que mas horas le he dedicado en mi vida sin contar el ir al cole,llevo jugando toda mi vida, comence con la **wii** hasat llegar al pc,actualmente tengo (aparte de varias consolas viejas que ya no utilizo) la play 5 i un pc decente en el cual juego a juegos de varias consolas como la swicht la play 1,2,3 i alguana mas gracias a los emuladores. Normalmente juego juegos de disparos i plataforma ya sea 2d o 3d. si tuviera que hacer un top 5 de los mejores juegos que he jugado en mi vida seria:
